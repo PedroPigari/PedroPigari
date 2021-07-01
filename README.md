@@ -1,3 +1,3 @@
 - 👋 Olá, sou o @PedroPigari
 - 🌱 Atualmente estou cursando Análise e Desenvolvimento de Sistemas na FIAP.
-- 📫 pedropigari@gmail.com
+- 📫 Contato ---> pedropigari@gmail.com
